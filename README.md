@@ -1,0 +1,1 @@
+My most recent CV; click to [view](https://github.com/georgetyler/resume/blob/master/gtyler_resume.pdf) or to [download directly](https://github.com/georgetyler/resume/raw/master/gtyler_resume.pdf). Feel free to get in touch at george (dot) tyler1998 (at) gmail.com!
